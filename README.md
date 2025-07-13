@@ -5,7 +5,7 @@ I'm **Bassem Naser**, a creative developer from **Mahdia**, passionate about bui
 
 ## 📫 Contact Me
 
-- 📧 Email: your-email@example.com  
+- 📧 Email: bassemnaser124@example.com  
 - 🔗 [LinkedIn](https://www.linkedin.com/in/bassem-naser-462249265/))  
 - 📸 [Instagram](https://www.instagram.com/bassem_nasr_/)  
 - 🎮 [YouTube](https://www.youtube.com/@B9XY)
